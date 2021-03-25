@@ -1,0 +1,1 @@
+Hey, I did good... I think. I had trouble with cloning because I misnamed the remote repository on Github. I mean, I suck now, but I'm much better than I am yesterday and will continue to improve my skills to get a decent job. We'll get there. In time.
