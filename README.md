@@ -1,1 +1,1 @@
-Hey, I did good... I think. I had trouble with cloning because I misnamed the remote repository on Github. I mean, I suck now, but I'm much better than I am yesterday and will continue to improve my skills to get a decent job. We'll get there. In time.
+Boss Jai arats g na. nga pala baka magtaka ka ala yung bootstrap, di padin talaga ako sanay ng may bootstrap. Need ko pa praktis AHAHAHAHAHAHAHAHA G NA WILDRIFT
